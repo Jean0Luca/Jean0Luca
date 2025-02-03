@@ -1,4 +1,4 @@
-## Hi everyone 👋
+## Hi everyone, I´m Lucas 👋
 
 <!--
 **Jean0Luca/Jean0Luca** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
