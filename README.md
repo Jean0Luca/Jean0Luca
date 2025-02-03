@@ -10,4 +10,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about my personal proyects
 - 😄 Pronouns: Yaru
 - ⚡ Fun fact: I can't stop laughing
+- 👍 I like it: Music, Volleyball and Videogames
 
